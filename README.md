@@ -1,8 +1,8 @@
 # FC VAN Gogh
-PINTURAS DE Van Gogh
+PINTURAS DE Van Gogh 🖌️
 
 historia
-🖌️
+
 
 
 
